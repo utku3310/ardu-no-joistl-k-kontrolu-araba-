@@ -1,1 +1,0 @@
-# ardu-no-joistl-k-kontrolu-araba-
